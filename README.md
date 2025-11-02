@@ -5,7 +5,7 @@
 **Directed by:** Jorge R. Gutierrez  
 
 ##  Overview
-**The Book of Life** is a animated film that celebrates *Mexican culture* and the *Day of the Dead* tradition.  
+**The Book of Life** is an animated film that celebrates *Mexican culture* and the *Day of the Dead* tradition.  
 It tells the story of *Manolo Sánchez*, a young man torn between fulfilling his family's expectations and following his heart to become a musician.
 
 ## Main Characters
